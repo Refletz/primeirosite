@@ -6,4 +6,4 @@ Demorei horas pra fazer esse site, o novo estou demorando dias.
 muito bom pra estudar os codigos, não autorizo lanca-lo este site, sem ao menos.
 deixar um credito para mim.
 
-Bom estudos.
+Bom Aproveito.
